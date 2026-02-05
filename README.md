@@ -37,3 +37,6 @@ This gives us so much room for surreal symbolism later.<br>
 Deeply loving  <br>
 She attaches fiercely to the few people or things she trusts.<br>
 Her love is protective, almost desperate — she doesn’t want to lose anything else.<br>
+
+<h1>Game Breakdown </h1>
+A game where the kid fights with monsters <br>
